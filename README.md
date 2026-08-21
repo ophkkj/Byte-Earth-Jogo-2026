@@ -1,0 +1,1 @@
+# Byte-Earth-Jogo-2026
